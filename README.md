@@ -1,0 +1,2 @@
+# MENTEGASDNLABANBARU
+Mengerti Tentang Gaya
